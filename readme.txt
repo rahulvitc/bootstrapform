@@ -1,1 +1,1 @@
-for any query mail me on rahulvitc@gmail.com
+for any query mail me on rahul.kumar@careercompiler.info
